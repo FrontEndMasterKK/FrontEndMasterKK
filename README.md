@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **karankhurana.020@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1WVf40Y11ufw44cqn8SPDW-HMomg9Rwds/view?usp=sharing](https://drive.google.com/file/d/1WVf40Y11ufw44cqn8SPDW-HMomg9Rwds/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/1lwGmnzUcC88bzGUh9YHEqj43sFQ4-FhA/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
